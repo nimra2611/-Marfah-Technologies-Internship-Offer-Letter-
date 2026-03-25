@@ -1,2 +1,3 @@
 # -Marfah-Technologies-Internship-Offer-Letter-
-Marfah Technologies "@Marfah-Technologies"
+Acknowledged
+@Marfah-Technologies
